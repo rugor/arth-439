@@ -1,6 +1,6 @@
-### Presentation on Walter Benjamin's _The Work of Art in the Age of Mechanical Reproduction_
+### Presentation on Term Paper Topic _The Image as Commodity - Carte de visite_
 
-Presented in Professor T’ai Smith's **ARTH 480 - Visual and Digital Media Theory** class on September 22, 2014
+Presented in Professor Maureen Ryan's **ARTH 439 - 18th and 19th Century Visual Culture** class on March 11, 2015
 
 Dept. of AHVA - University of British Columbia
 
